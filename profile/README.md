@@ -4,7 +4,7 @@
 
 The much-awaited sequel, *Pushpa 2: The Rule*, is all set to captivate audiences worldwide. Following the massive success of the first installment, this movie promises action, drama, and suspense. Directed by Sukumar, the film stars Allu Arjun and Rashmika Mandanna, making it a blockbuster in the making.
 
-[DOWNLOAD NOW](https://www.udlinks.com/eg1BX)
+[DOWNLOAD NOW](https://linksfly.net/pushpa)
 ---
 
 ## **Plot Overview of Pushpa 2**
